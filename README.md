@@ -6,7 +6,7 @@
 #### 完美展现出了一个全新的未来世界，相信神的世界。
 
 # 1. 这本书是免费
-官方书籍科剑大陆的唯一网站 https://www.kdocs.cn/l/snPjPXI3jzCp
+看官方书籍科剑大陆的唯一网站 https://book.qidian.com/info/1030265123/
 #### 如果需要更换链接，会第一时间放到官网
 # 2. 以下是非永久官网（也是官方，但不是永久性的）
 ## https://ke1jian4da4lu4.godaddysites.com/
